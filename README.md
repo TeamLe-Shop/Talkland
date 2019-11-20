@@ -1,2 +1,2 @@
 # Talkland
-You walk and talk and ounch
+You walk and talk and punch
